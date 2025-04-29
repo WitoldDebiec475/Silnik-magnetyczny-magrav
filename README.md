@@ -1,2 +1,2 @@
 # Silnik-magnetyczny-magrav
-Ja funduje to wszystko ale ma nie wpaść w ręce lewego procesorea i lewego czy prawego złodzieja co drukuje kasę czy w ręce wojska wojskowych czy stadionu. Ma iść do potrzebujących. Tanio produkowaney sprzęnt ma być. Z drukarki kwantowej w opakowaniu. 
+Ja funduje to wszystko ale ma nie wpaść w ręce lewego procesorea i lewego czy prawego złodzieja co drukuje kasę czy w ręce wojska wojskowych czy stadionu. Ma iść do potrzebujących. Tanio produkowaney sprzęnt ma być. Z drukarki kwantowej w opakowaniu. Do wojska i stadionów nie bo kręcą filmy o wojnie i robią wojny Terminator dzień sądu. To post złodzieje są. 
